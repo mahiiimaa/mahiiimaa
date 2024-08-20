@@ -7,4 +7,6 @@ Hey! :3
 - 📫 How to reach me: sofhia.rodriguee@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I hate yellow 
-![https://static.zerochan.net/Idia.Shroud.full.3535899.png]
+
+![![Idia Shroud full 3535899](https://github.com/user-attachments/assets/fc79a069-7299-4eec-a98b-b8baa560b37f)
+]
